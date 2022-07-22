@@ -15,3 +15,9 @@ Elflosly bank application consist feautures including:  real currency update and
 
 
 ![image](https://user-images.githubusercontent.com/99803786/179432425-e868ac5e-1ad7-45ef-933a-050f337a8fa7.png)
+
+
+BSCS 3A  
+Eulogio "Amang" Rodriguez  Institute sciences Technology
+
+Prof: Sir.Jefferson Costales
