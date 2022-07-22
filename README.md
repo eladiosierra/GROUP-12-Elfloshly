@@ -21,3 +21,6 @@ BSCS 3A
 Eulogio "Amang" Rodriguez  Institute sciences Technology
 
 Prof: Sir.Jefferson Costales
+
+
+https://youtu.be/6RjgPfcLWvc
